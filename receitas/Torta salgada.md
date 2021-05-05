@@ -21,17 +21,17 @@
 # MODO DE PREPARO
 ## Recheio:
 
- 1- Misture todos os ingredientes em uma bacia até obter uma consistência firme e reserve.
+ 1 - Misture todos os ingredientes em uma bacia até obter uma consistência firme e reserve.
 
 ## Massa:
 
- 1- Reserve o queijo.
+ 1 - Reserve o queijo.
 
- 2- Bata os demais ingredientes da massa no liquidificador e acrescente por último o fermento.
+ 2 - Bata os demais ingredientes da massa no liquidificador e acrescente por último o fermento.
 
- 3- Despeje metade da massa em uma assadeira grande de inox ou alumínio, untada com manteiga.
+ 3 - Despeje metade da massa em uma assadeira grande de inox ou alumínio, untada com manteiga.
 
- 4- Acrescente o recheio por cima e cubra com o restante da massa.
+ 4 - Acrescente o recheio por cima e cubra com o restante da massa.
 
- 5- Polvilhe queijo parmesão e coloque para assar em forno alto (220° C), preaquecido, por 40 minutos.
+ 5 - Polvilhe queijo parmesão e coloque para assar em forno alto (220° C), preaquecido, por 40 minutos.
 
