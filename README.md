@@ -1,4 +1,4 @@
-# Livro de receitas :chef
+# Livro de receitas 👨‍🍳
 
 ## Receitas
 
